@@ -1,0 +1,12 @@
+### my bio
+I love my family very much.
+I am known to be a girl child activiest and a journalist too.
+
+  ACTIVITY
+
+  setting the items needed for the activity in plan.
+  Transport stationaries to the venue.
+
+
+
+  
